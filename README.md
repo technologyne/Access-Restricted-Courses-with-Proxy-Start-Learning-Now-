@@ -1,7 +1,7 @@
 # Access Restricted Courses with Proxy: Start Learning Now!
 
 Want to expand your horizon but online courses are restricted based on your geographic location? That’s a bummer. But it can be fixed with a proxy.  
-**[👉 Explore unrestricted learning with 9Proxy – access geo-blocked courses easily and securely from anywhere in the world.**](https://9proxy.com?utm_source=web20&utm_id=SEOjonni123)
+**[👉 Explore unrestricted learning with 9Proxy – access geo-blocked courses easily and securely from anywhere in the world.](https://9proxy.com?utm_source=web20&utm_id=SEOjonni123)**
 
 ## What is proxy?
 
